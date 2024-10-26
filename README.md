@@ -8,3 +8,6 @@ https://www.canva.com/design/DAGUq5Iqqzw/pzvJzduKKnHM5NATJ5hcLA/edit
 
 --boat headphone project
 https://www.canva.com/design/DAGUq_x8iR8/OjHx3d8oZtP5PumToMVUtQ/edit
+
+--deep cleaning logo
+https://www.canva.com/design/DAGUrS9vaLM/5ar6doJPcYqmFE3H3HqkBw/edit
