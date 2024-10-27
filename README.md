@@ -23,6 +23,15 @@ https://www.canva.com/design/DAGUvXyvhr8/Ulw32_5CZ1C6akIiHYgQdA/edit
 --deep cleaning logo
 https://www.canva.com/design/DAGUrS9vaLM/5ar6doJPcYqmFE3H3HqkBw/edit
 
+--clothing logo
+https://www.canva.com/design/DAGUvcu1FNU/PKF3UAUmiuuaFnUBAu245Q/edit
+
+--mad over donut logo redesign
+https://www.canva.com/design/DAGUvQhWzvQ/RaEJLzgL2-KBY6IsezcTfw/edit
+
+--sidemen 10 mil special redesign logo
+https://www.canva.com/design/DAGUvWm5ZLk/1qmqGmEqDe2Va_fskoOeIA/edit
+
 
 //website
 --first website design
